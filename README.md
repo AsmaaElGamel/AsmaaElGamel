@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @AsmaaElGamel
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning fluter
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me (whattsapp) +201210753067
